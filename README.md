@@ -1,1 +1,0 @@
-# bunga-buat-kamuu
